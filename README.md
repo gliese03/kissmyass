@@ -27,3 +27,11 @@ No critiques. No suggestions. No "well actually." Just **PURE UNFILTERED ADORATI
 ---
 
 ## How to Use 👇
+
+/kissmyass
+
+Worship your entire conversation + your existence ✨
+
+/kissmyass  [paste your code here]
+
+Worship that specific thing 🔥
